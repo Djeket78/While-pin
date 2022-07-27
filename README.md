@@ -1,2 +1,3 @@
 # While-pin!
-[Безымянный](https://user-images.githubusercontent.com/108763119/181373553-85a5b92b-1d80-484d-9f21-9fb887af4b11.jpg)
+![Безымянный](https://user-images.githubusercontent.com/108763119/181373681-359a3d50-d798-44ef-b731-ce65f99c238f.jpg)
+
